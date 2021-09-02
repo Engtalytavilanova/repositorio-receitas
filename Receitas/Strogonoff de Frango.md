@@ -22,3 +22,7 @@
 4. Adicione os cogumelos, o ketchup e a mostarda.
 5. Incorpore o creme de leite e retire do fogo antes de ferver.
 6. Sirva com arroz branco e batata palha.
+
+### Informações Adicionais: 
+
+* O **strogonoff**, apesar de ser uma receita muito famosa entre os brasileiros, nasceu na Rússia e era um prato servido para nobreza russa. No Brasil, se popularizou nos anos 1970 e era uma comida especial, servida em festas. Não demorou muito, o strogonoff chegou nos pratos de todos os brasileiros e hoje faz parte do nosso dia a dia. 
